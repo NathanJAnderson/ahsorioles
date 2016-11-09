@@ -11,3 +11,5 @@ Orioles: https://drive.google.com/open?id=0B5EZ4ffaeJr8dnRDeU9GWlJpLW8
 Artwork Requests: https://docs.google.com/a/usd402.com/document/d/1y25fXzMZ01kI_jTEUGGDpA0ct2NyK-Gd2newP9UfYXk/edit?usp=sharing
 
 Drone Vids and Pics: https://drive.google.com/open?id=0B5EZ4ffaeJr8UVNia1dIYUhLc0E
+
+Art Log: https://docs.google.com/a/usd402.com/spreadsheets/d/1nd5UcBEzDsWHUbDRh_Au460Mk-R3rhG5ki966plm8v0/edit?usp=sharing 
